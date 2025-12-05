@@ -1,0 +1,1 @@
+# HASQuran.kar
